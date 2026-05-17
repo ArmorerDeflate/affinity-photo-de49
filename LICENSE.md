@@ -1,4 +1,4 @@
-# 
+# updated Adobe Photoshop PC版 脚本 是最佳 Adobe Photoshop PC版 脚本，集成 流体模拟 和 矢量效果。安全、可靠、优化，性能最大化。
 
 
 
